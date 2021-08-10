@@ -1,0 +1,1 @@
+#### Collection of stuff I've coded when I was bored
